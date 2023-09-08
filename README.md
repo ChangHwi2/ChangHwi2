@@ -3,4 +3,5 @@
 - 🌱 I’m currently learning GitHub
 
 My SNS account : 9hwxoops (Contact me here!!)
-I Want study Well... 
+
+I want to be good at studying...:)
